@@ -1,2 +1,22 @@
-# index.html
-Tugas Numpuk? sini ada kami😅,Ruangbantumu🎀 adalah layanan pengetikan, penulisan, editing, desain grafis, pembuatan PPT, presentasi, proposal, makalah, print atau cetak dokumen, serta pendampingan tugas. Kami hadir dengan layanan praktis, harga terjangkau, hasil rapi, dan desain kreatif untuk membantu kebutuhan akademik maupun dokumen sehari-hari.
+# 🎀 Ruangbantumu
+
+**Tugas numpuk? Sini, Ruangbantumu bantu! 💗**
+
+Hai! Selamat datang di Ruangbantumu, teman andalanmu untuk membantu berbagai kebutuhan tugas dan dokumen. ✨
+
+### 🩷 Layanan Kami
+- ⌨️ Pengetikan dan penulisan dokumen
+- 📝 Editing dan merapikan dokumen
+- 🎨 Desain grafis
+- 📊 Pembuatan PPT dan presentasi
+- 📚 Makalah dan proposal
+- 🖨️ Print atau cetak dokumen
+- 💌 Bantuan kebutuhan tugas lainnya
+
+### 🌷 Kenapa Ruangbantumu?
+- Harga ramah di kantong
+- Hasil rapi dan menarik
+- Pelayanan ramah dan praktis
+- Bisa menyesuaikan kebutuhanmu
+
+**Yuk, bikin urusan tugas jadi lebih mudah bersama Ruangbantumu! 🎀💗**
